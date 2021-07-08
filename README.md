@@ -1,4 +1,3 @@
-Top Rated Sr. Full Stack Web & Mobile App Dev, Consultant & Instructor
 
 ✅ To make sure You are 100% Satisfied
 ✅ Your Project will complete with Peace of Mind
